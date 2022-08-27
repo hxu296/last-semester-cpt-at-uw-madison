@@ -30,7 +30,7 @@ Yes, they are compatible. Exceptions to a full course of study include:
 >**Final Semester of Study:**
 >If you need less than a full-time course load to complete your program of study in your final semester. (If you are enrolled in summer semester, that is your final semester.)
 
-**Steps to apply for Reduced Course Load (approximate duration: TBD)**
+Steps to apply for Reduced Course Load (approximate duration: TBD)
 
 1. Meet with your academic advisor to discuss reason and obtain approval.
 2. Complete the “Reduced Course Load” request form in TerraDotta. Include your advisor’s email information so they can approve the request.
