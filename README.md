@@ -52,7 +52,7 @@ You need to apply for CPT ***before*** applying for OPT, which boils down to two
 
 ## Source
 
-1. Last Semester CPT: [**https://iss.wisc.edu/employment/f1-employment/f-1-curricular-practical-training-cpt/cpt-during-your-final-semester/**](https://iss.wisc.edu/employment/f1-employment/f-1-curricular-practical-training-cpt/cpt-during-your-final-semester/)
+1. Last Semester CPT: [https://iss.wisc.edu/employment/f1-employment/f-1-curricular-practical-training-cpt/cpt-during-your-final-semester/](https://iss.wisc.edu/employment/f1-employment/f-1-curricular-practical-training-cpt/cpt-during-your-final-semester/)
 2. CPT during fall and spring: [https://iss.wisc.edu/employment/f1-employment/f-1-curricular-practical-training-cpt/cpt-during-the-fall-and-spring-semesters/](https://iss.wisc.edu/employment/f1-employment/f-1-curricular-practical-training-cpt/cpt-during-the-fall-and-spring-semesters/)
 3. CPT Time Limits & Dates: [https://iss.wisc.edu/employment/f1-employment/f-1-curricular-practical-training-cpt/cpt-dates/](https://iss.wisc.edu/employment/f1-employment/f-1-curricular-practical-training-cpt/cpt-dates/)
 4. Reduced Course Load: [https://iss.wisc.edu/students/current-students/reduced-course-load/](https://iss.wisc.edu/students/current-students/reduced-course-load/)
