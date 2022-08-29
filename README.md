@@ -1,7 +1,7 @@
 # Last Semester CPT Policy at UW-Madison
 *Note: This is a work-in-progress.*
 
-## Index
+## Contents
 - [Requirements to apply for the Last Semester CPT](#Requirements-to-apply-for-the-Last-Semester-CPT)
 - [Last Semester CPT with Reduced Course Load](#Last-Semester-CPT-with-Reduced-Course-Load)
 - [CPT for a job offer outside of Madison](#CPT-for-a-job-offer-outside-of-Madison)
